@@ -1,1 +1,0 @@
-# gizemrenkidag.github.io
